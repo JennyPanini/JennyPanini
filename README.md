@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JennyPanini
+- 👀 I’m interested in graphic design and illustration.
+- 🌱 I’m currently learning how to code.
